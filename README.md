@@ -1,2 +1,3 @@
 # b2110059
-Bai tap ct299
+Xin chào! Tôi là Trần Hoàng Thi MSSV:B2110059
+
